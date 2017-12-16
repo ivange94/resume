@@ -1,12 +1,9 @@
-# Ivange Larry Ndumbe=
+# Ivange Larry Ndumbe
 Programmer, Community Leader, Open Source Enthusiast
 
-UB Street
-
-Molyko, Buea
-
-(+237) 6-5095-6705
-
+UB Street   
+Molyko, Buea   
+(+237) 6-5095-6705   
 ivangelarry@gmail.com
 
 
